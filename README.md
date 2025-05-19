@@ -16,7 +16,12 @@
 
 ✅ 𝗽𝘆𝘁𝗵𝗼𝗻 𝘄𝗼𝗿𝗱-𝘅.𝗽𝘆
 
-🫡 𝒊𝒇 𝒚𝒐𝒖 𝒇𝒐𝒖𝒏𝒅 𝒕𝒉𝒊𝒔 𝒕𝒐𝒐𝒍 𝒕𝒉𝒆𝒏 𝒑𝒍𝒛 𝒅𝒐 𝒍𝒊𝒌𝒆 𝒔𝒖𝒃𝒔𝒄𝒓𝒊𝒃𝒆 𝒂𝒏𝒅 𝒄𝒍𝒊𝒄𝒌 𝒐𝒏 𝒃𝒆𝒍𝒍 𝒊𝒄𝒐𝒏 𝒔𝒖𝒑𝒑𝒐𝒓𝒕 𝒖𝒔🤠👉🏼
-https://youtube.com/@hackers_colony_tech?si=LzX9VMD9IgExPKaP
+Now to use this tool you will be automatically redirected to our
+YouTube channel do subscribe and click on Bell icon and come back
+to Termux and you Will be able to use this tool for free
 
-Join our Group👉🏼 https://chat.whatsapp.com/HtMWWmyi7QQ0sMV7tm4FYX
+Hope & You Love the tool and for any queries or error join our Hacking
+our Channel 👉🏼 https://youtube.com/@hackers_colony_tech?si=7MbI9sm2pOPC1LP_
+
+𝗔𝗻𝘆 𝗘𝗿𝗿𝗼𝗿 𝗥𝗲𝗮𝗰𝗵 𝘂𝘀 𝗮𝘁 👇🏼👇🏼
+https://chat.whatsapp.com/HB03qdGSK5K17wmQ5FXGiP
